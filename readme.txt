@@ -1,1 +1,1 @@
-Thanks fore readings
+Thanks fore readings (Edit: thanks for the likes)
