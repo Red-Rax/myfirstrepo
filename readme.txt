@@ -1,1 +1,1 @@
-Thanks for reading!
+Thanks fore readings
